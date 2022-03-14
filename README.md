@@ -31,3 +31,6 @@ https://www.istockphoto.com/photo/chimpanzee-smile-gm1138610077-304042528
 
 Numaer 1
 https://www.istockphoto.com/photo/young-chimpanzee-close-up-wildlife-shot-gombe-tanzania-gm472156837-34616464
+
+Onorable mensions
+https://phys.org/news/2020-04-area-critically-endangered-monkey.html
